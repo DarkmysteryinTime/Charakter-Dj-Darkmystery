@@ -6,3 +6,5 @@ Er ist mehr als ein DJ – er ist ein Erzähler zwischen den Welten. Seine Sets 
 
 Wenn DJ Darkmystery die Decks übernimmt, beginnt das Mysterium.
 Bist du bereit, dich dem Schattenklang hinzugeben?
+
+Seit dabei nächster Gig am 26.7.2025 auf der Tomorrowland
